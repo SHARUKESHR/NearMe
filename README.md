@@ -163,6 +163,10 @@ dharmapuri.html
 ## OUTPUT
 
 
+![1](https://github.com/SHARUKESHR/NearMe/assets/144870484/7e82460c-faa1-4523-b83c-b871f43d18a5)
+
+
+
 
 
 
