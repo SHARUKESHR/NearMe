@@ -165,6 +165,21 @@ dharmapuri.html
 
 ![1](https://github.com/SHARUKESHR/NearMe/assets/144870484/4d042189-73eb-400d-a3e6-4cfb229ef970)
 
+![2](https://github.com/SHARUKESHR/NearMe/assets/144870484/cf642604-41ae-4b11-bb8a-a69810975599)
+
+![3](https://github.com/SHARUKESHR/NearMe/assets/144870484/383a431b-67de-4963-af37-a3e5c2c0a43a)
+
+![4](https://github.com/SHARUKESHR/NearMe/assets/144870484/5b41a4cd-ae3a-439d-8d80-9e4b315473ec)
+
+![5](https://github.com/SHARUKESHR/NearMe/assets/144870484/f469357f-c7df-4ff1-93b0-1164fc03bc3d)
+
+
+![6](https://github.com/SHARUKESHR/NearMe/assets/144870484/60c5160e-691a-43c8-902f-19b0fec477c1)
+
+
+
+
+
 
 
 
